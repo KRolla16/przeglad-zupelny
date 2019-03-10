@@ -1,0 +1,1 @@
+# przeglad-zupelny
